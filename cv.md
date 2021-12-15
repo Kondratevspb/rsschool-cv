@@ -1,4 +1,0 @@
-#Dmitryi Kondratev
-
-
-##Contacts
